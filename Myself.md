@@ -2,6 +2,8 @@
 
 Welcome to my GitHub profile! I'm a passionate aspiring game developer currently vibing in class 12 and 17 years old. My journey into the world of game development is fueled by my love for computers and PC enthusiasm.
 
+**Gamedev🎮**[![wp7664856.png](https://i.postimg.cc/fRbThKRH/wp7664856.png)](https://postimg.cc/bsKjx1bb)
+
 ## About Me
 
 - 🌱 **Learning**: Always leveling up and exploring new tech in the game dev world.
