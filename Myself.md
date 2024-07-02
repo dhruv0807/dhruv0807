@@ -24,6 +24,5 @@ Thanks for stopping by my profile!
 ---
 
 ✨ *"When life gets tough, just respawn."* ✨
-```
 
-This quote keeps the humor and aligns well with the gaming and PC theme. Let me know if there's anything else you'd like to change!
+*SUS*[![a2694c77f84f70776895d50b2da82bb229e43f43r1-640-598-hq.gif](https://i.postimg.cc/Y9Rsk193/a2694c77f84f70776895d50b2da82bb229e43f43r1-640-598-hq.gif)](https://postimg.cc/0M6f0K7M)
